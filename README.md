@@ -1,0 +1,1 @@
+# execice14_list1uc-solucoescomputacionais
